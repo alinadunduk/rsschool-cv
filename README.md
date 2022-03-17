@@ -1,1 +1,0 @@
-https://alinadunduk.github.io/rsschool-cv/cv
